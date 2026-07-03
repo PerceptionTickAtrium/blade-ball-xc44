@@ -1,4 +1,4 @@
-#  
+#  Experience blade ball like never before with blade ball best Scripts, the #1 Script. Includes one-hit kill and esp for unbeatable performance.
 
 
 
